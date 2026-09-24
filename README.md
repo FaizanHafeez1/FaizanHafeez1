@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 I'm Faizan, a recent CS Graduate based in Dallas, Texas.
-Looking for Full Time Software Engineering Positions in any field. 
+Looking for Full Time Software Engineering or IT positions.  
 I am open to Relocation!
 
 I love to design and build meaningful and useful things.
